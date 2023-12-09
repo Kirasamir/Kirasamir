@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Kirasamir
+- 👋 Hi, « I’m not that special. I’m just alone » @Kirasamir
 - 👀 I’m interested in "Born to code"
 - 🌱 I’m currently learning "Everything"
 - 💞️ I’m looking to collaborate on "Future science"
